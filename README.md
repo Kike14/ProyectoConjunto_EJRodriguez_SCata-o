@@ -1,2 +1,2 @@
-# ProyectoConjunto_EJRodriguez_SCata-o
+# ProyectoConjunto_EJRodriguez_SCataño
 Tarea 1
